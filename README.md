@@ -1,0 +1,2 @@
+# Masline-Masline-Electronics-Maxim-Integrated-distributor-Masline-Electronics-Broadcom-supplier
+Masline Electronics is your trusted Maxim Integrated distributor and Broadcom supplier, offering authentic analog ICs, power management, semiconductors, and communication solutions. With bulk discounts, low MOQ, and fast global shipping, Masline ensures reliable sourcing for engineers, OEMs, and procurement teams.
